@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Vanda Mello!
+# 👋 Olá, eu sou Vanderléia Mello!
 
 💡 Sou estudante de **Engenharia Elétrica** e **Técnico em Desenvolvimento de Sistemas**, apaixonada por unir **tecnologia e engenharia** para criar soluções inteligentes, eficientes e sustentáveis.  
 
